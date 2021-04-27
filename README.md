@@ -1,1 +1,3 @@
 Data Analyst with more than 10 years of experience in financial services analyzing investments, market trends and forecasts, and financial plans.  Currently transitioning from previous roles to a career path more closely aligned with my personality.  Bachelor of Arts in Economics from The Ohio State University, and Certificate in Data Analytics and Visualization from the University of Minnesota to expand my analytical skills in Excel, Python, and SQL.  A critically thinking problem solver with a passion for organizing and presenting data to provide objective analytical solutions.
+
+Contact Me:  matthewkilleen0830@gmail.com
